@@ -1,4 +1,4 @@
-# Privacy Policy — Easy Budget Family
+# Privacy Policy Easy Budget Family
 
 Last updated: October 8, 2026
 
