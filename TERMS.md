@@ -1,4 +1,4 @@
-# Terms of Use — Easy Budget Family
+# Terms of Use Easy Budget Family
 
 Last updated: October 8, 2026
 
